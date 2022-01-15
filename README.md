@@ -2,5 +2,6 @@
 
 JinggaBlue Studio is my space for all of my personal projects.
 
-Regards,
-R⚽
+Best regards,
+
+R ⚽
